@@ -1,2 +1,2 @@
-# A-Brief-History-of-Western-Social-Thought
+# A-Brief-History-of-Western-Social-Thought (2022Fall USTC)
 This course is a study of the social thought of western, including classical antiquity which concern Hebrew, ancient Greek and Rome, afterwards is the Middle Ages mainly with Christian thought, and then Renaissance, Reformation, Classical natural law in 17th century, enlightenment movement at France and Scotland in 18th century, until liberalism, conservatism, utopian socialism in early 19th century. In view of Chinese students’ cultural background, we will supplement some historical and philosophical knowledge, meanwhile compare with Chinese social thought in the same era.
